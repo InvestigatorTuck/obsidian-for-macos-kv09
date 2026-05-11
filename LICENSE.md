@@ -1,4 +1,4 @@
-
+Get the ultimate Obsidian for macOS integration with rare Obsidian for macOS Integration | goal tracking + calendar integration. Featuring goal tracking and calendar integration,
 
 
 
